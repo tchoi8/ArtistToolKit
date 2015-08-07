@@ -69,7 +69,7 @@ Some good artistic and technical writing by artists and friends
 - [Rafael Lozano Hemmer](http://www.lozano-hemmer.com/) 
 - [Golan Levin](http://flong.com/)
 - [Heather Dewey Hagborg](http://deweyhagborg.com/)
-- [Trevor Paglen]()http://www.paglen.com/)
+- [Trevor Paglen](http://www.paglen.com/)
 - [Christine Sun Kim](http://christinesunkim.com/)
 - [Brody Condon](http://tmpspace.com/)
 - [Kobakant](http://www.kobakant.at/)
@@ -83,13 +83,11 @@ Critical and exploratory art writing
 - [Badlands Unlimited](https://www.facebook.com/pages/Badlands-Unlimited/171055936240664)
 - [Bidoun](http://www.bidoun.org/)
 
-Grant writing 
+Grant writing is fun!
 
 - Staying in schedule on Call for residency, calendars 
-- Project pitch: Taeyoon's example for Art + Technology Lab, LACMA 
-- Fellowship pitch: Taeyoon's exmaple for NYFA, Eyebeam, Creative Capital 
 - Taeyoon's success rate 20~30%? not sure... 
- 
+- Taeyoon's guide for artists applying to grants and residencies. **Apply early, impulsively and shamelessly.** 
 
 Taeyoon's examples
 
@@ -100,7 +98,7 @@ Taeyoon's examples
 - [NYFA](http://tchoi8.github.io/proposal/2014/02/18/nyfa.html)
 
 
-Taeyoon's experience with residencies 
+Taeyoon's experience with residencies and grant
 
 
 - [Eyebeam](http://eyebeam.org) Art + Technology Center - Residency in 2008, Fellowship in 2011
