@@ -152,6 +152,21 @@ In Cash or in favor.
 You don't want tax conflict to be part of your art history like [Something Else Press](https://en.wikipedia.org/wiki/Talk:Something_Else_Press) 
 
 
+**Common pay**
+
+- Artist talk $0~$150
+- Workshop $200~300 
+- Talk in foreign city $1000 + travel/accomodation
+- Teaching once a week for a semester $3000~45000 
+- Helping other artists $0~150/hour 
+- Short residency $0~2000
+- Long residency (5 months+) $3~5000
+- Medium size grant/ commission $6000~10000
+- Big grant $10000~50000
+- Life time achievement grant/ big award $+++++
+
+
+
 **Other Frequently Asked Questions**
 
 
