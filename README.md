@@ -82,6 +82,8 @@ Critical and exploratory art writing
 - [Parkett](http://www.parkettart.com/)
 - [Badlands Unlimited](https://www.facebook.com/pages/Badlands-Unlimited/171055936240664)
 - [Bidoun](http://www.bidoun.org/)
+- Daniel Tempkin's [Esoteric codes](http://esoteric.codes/) 
+- [CAN](http://www.creativeapplications.net/)
 
 Grant writing is fun!
 
@@ -110,12 +112,17 @@ Favorite places I continue to apply every year, or wish you apply
 
 - [Recess activities](http://www.recessart.org/) 
 - [Pioneerworks](http://www.highdeserttestsites.com/hdts) 
- 
+
+Real life examples of project description
+
+- Taeyoon's 
+- Taeyoon's friends  
 
 Opportunities that you should apply!
 
 - **[Prix Net Art](http://prix-netart.org/)**
 - **[Wave farm](https://wavefarm.org/ta/residencies)** 
+- **[Internet Black Market](http://yami-ichi.biz/nyc/)**
 
 
 
@@ -155,7 +162,7 @@ You don't want tax conflict to be part of your art history like [Something Else 
 - Artist talk $0~$150
 - Workshop $200~300 
 - Talk in foreign city $1000 + travel/accomodation
-- Teaching once a week for a semester $3000~45000 
+- Teaching once a week for a semester $3000~4500 
 - Helping other artists $0~150/hour 
 - Short residency $0~2000
 - Long residency (5 months+) $3~5000
@@ -191,8 +198,7 @@ What kind of residencies are right for me?
 Q: **"I don't really want to do M.F.A but I do like being around school and want to further develop my art practice, career!"**
 
 - Artist run schools : SFPC (obviously), The Public School, Trade School, New York Arts Practicum 
-- Residency/ Schools/ : 
-- Summer institute at LMCC/ Creative Capital 
+- Residency/ Schools/ : Biz [Artists Summer Institute](http://lmcc.net/program/artists-summer-institute/) at LMCC/ Creative Capital 
 - Grad school / residency: [Van Eyck](
 http://www.transartists.org/article/van-eyck-call-applications 
 ), [Skowhegan](http://www.skowheganart.org/),[Fabrica](http://www.fabrica.it/apply/) 
