@@ -132,7 +132,7 @@ Opportunities that you should apply!
 - Self promotion  
 - Helping another artists - the skills and compensation
 - Annual plan, 5 years plan 
-- Making of Personal collection and Artist Etate 
+- Making of Personal collection and Artist Estate 
 - Selling out - Wanderlust School of selling out [link](http://sextant.works/sso/sellingout.php)
 
 Artist, teaching, performing fees
@@ -182,8 +182,7 @@ What kind of residencies are right for me?
 
 - Do you want to be in a [castle middle of nowhere in Germany?](http://www.akademie-solitude.de/en/) 
 - Do you wanna be in the [desert?](http://www.highdeserttestsites.com/hdts)
-- Artist colony : [MacDowell](http://www.macdowellcolony.org/) 
-- [Mildred's Lane](http://mildredslane.com/home#mildred-complexity) Read [more](http://www.nytimes.com/2008/05/29/garden/29puett.html?pagewanted=all&_r=0)  
+- Artist colony : [MacDowell](http://www.macdowellcolony.org/), [Mildred's Lane](http://mildredslane.com/home#mildred-complexity) Read [more](http://www.nytimes.com/2008/05/29/garden/29puett.html?pagewanted=all&_r=0)  
 - Do you want to be in a different city/ country? 
 - Do you need professional connection? 
 - Do you want to make your own things while also helping others by being in the arts industry? [Shift](http://www.shift-efanyc.org/)
