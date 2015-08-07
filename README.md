@@ -1,6 +1,6 @@
 # Artist Tool Kit
 
-Material for a class at SFPC
+Material for a class at SFPC [Code Poetry summer session](http://sfpc.io/summer2015/). 
 
 This two part class will introduce the basic tools and resource to pursue career as an independet artist and cultural producer. This class will focus on emerging artists and writers who work with technology as an integral medium, technologists who's exploring art and independent practices. 
 
@@ -127,7 +127,7 @@ Opportunities that you should apply!
 - Grant, fiscal sponsorship
 - Workshop fee
 - Artist talk fee
-- [Who pays artist?](http://www.whopaysartists.com/)
+- [Who pays artist?](http://www.whopaysartists.com/) (and how I wish the website is done differently, and a more productive discussion)
 - What to do when family and friends want to help, buy your work, how to return their favor
 - Self promotion  
 - Helping another artists - the skills and compensation
