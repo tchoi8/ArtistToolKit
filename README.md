@@ -69,6 +69,7 @@ Some good artistic and technical writing by artists and friends
 - [Rafael Lozano Hemmer](http://www.lozano-hemmer.com/) 
 - [Golan Levin](http://flong.com/)
 - [Heather Dewey Hagborg](http://deweyhagborg.com/)
+- [Trevor Paglen]()http://www.paglen.com/)
 - [Christine Sun Kim](http://christinesunkim.com/)
 - [Brody Condon](http://tmpspace.com/)
 - [Kobakant](http://www.kobakant.at/)
@@ -113,13 +114,10 @@ Favorite places I continue to apply every year, or wish you apply
 - [Pioneerworks](http://www.highdeserttestsites.com/hdts) 
  
 
-Opportunities 
+Opportunities that you should apply!
 
 - **[Prix Net Art](http://prix-netart.org/)**
 - **[Wave farm](https://wavefarm.org/ta/residencies)** 
-
-
-http://www.transartists.org/article/van-eyck-call-applications 
 
 
 
@@ -139,19 +137,33 @@ http://www.transartists.org/article/van-eyck-call-applications
 - Making of Personal collection and Artist Etate 
 - Selling out - Wanderlust School of selling out [link](http://sextant.works/sso/sellingout.php)
 
+Artist, teaching, performing fees
 
-What is artist residencies? 
+**PAY YOURSELF FIRST**
+
+Budget in your pay first.  
+
+**PAY YOUR FRIENDS** 
+
+In Cash or in favor. 
+
+**PAY TAX** 
+
+You don't want tax conflict to be part of your art history like [Something Else Press](https://en.wikipedia.org/wiki/Talk:Something_Else_Press) 
+
+
+**Other Frequently Asked Questions**
+
+
+Q: What is artist residencies? 
 
 - http://www.transartists.org/ 
-- http://ratemyartistresidency.com/
-- http://ratemyartistresidency.com/2014/12/11/triangle-residency-brooklyn/ 
--
+- http://ratemyartistresidency.com/  
 
+Q: Why are some residencies competitive and prestigious? 
 
-Competitive, prestigious residencies? 
-
-- what's different about them?
-- is it worth applying for?
+- What's different about them?
+- Is it worth applying for?
 
 What kind of residencies are right for me? 
 
@@ -166,23 +178,30 @@ What kind of residencies are right for me?
 
 Q: **"I don't really want to do M.F.A but I do like being around school and want to further develop my art practice, career!"**
 
-A: There are options. 
-
 - Artist run schools : SFPC (obviously), The Public School, Trade School, New York Arts Practicum 
 - Residency/ Schools/ : 
 - Summer institute at LMCC/ Creative Capital 
-- Grad school / residency: Van Eyck, Skowhegan, 
-- Apply for fellowship at grad schools 
+- Grad school / residency: [Van Eyck](
+http://www.transartists.org/article/van-eyck-call-applications 
+), [Skowhegan](http://www.skowheganart.org/),[Fabrica](http://www.fabrica.it/apply/) 
+- Apply for fellowship, scholarship at grad schools
+- Free Grad programs for arts is disappearing for example [USC](http://www.latimes.com/entertainment/arts/miranda/la-et-cam-uscs-2016-mfa-class-withdraws-in-protest-20150514-column.html#page=1)
+- Some free grad school opportunities exist in Europe, and also arts + engineering field.  
+- **Make your own school**  
 
 Commercial gallery
+
 
 - [Bitforms](http://www.bitforms.com/)
 - [Transfer gallery](transfergallery.com)
 - [Postmasters gallery](http://www.postmastersart.com/) 
 - [Bryce Wolkowitz](http://brycewolkowitz.com/h/)
 - [Carroll/Fletcher](http://www.carrollfletcher.com/)
+
+*Galleries in general do not accept unsolicited submissions. Try to smooch in the openings or have your project written up. It's easier if they reach out to you.* 
  
 Big fish
+
 - [Jerome foundation](http://www.jeromefdn.org/apply/general-program)
 - [Creative Capital](http://creative-capital.org/apply)
 - Lots of others 
@@ -198,4 +217,4 @@ Diversifying source of funding
 
 ###End notes
 
-night 
+Some [things](https://medium.com/@tchoi8/somethings-i-wish-someone-told-me-when-i-began-to-make-art-9ea65b088188) I wish someone told me when I began to make art. 
