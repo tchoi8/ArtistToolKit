@@ -7,6 +7,7 @@
 - When you have money, you don't have time. When you have time, you don't have money. Sometimes you don't have money or time. 
 - my [LMCC](https://www.flickr.com/photos/80913365@N04/sets/72157646634239134) studio
 - my [Eyebeam](https://www.flickr.com/search/?text=eyebeam%20taeyoon) experience
+- my [SFPC](https://medium.com/@tchoi8/diversity-at-sfpc-d494d7390375) experience
 
 #Making a living / Making good work
 - Survival tactic: Diversify your source of income 
@@ -35,7 +36,7 @@
 - NY based residencies  - rare and competitive,
 - Eligibility (region, age, gender, ethnicity, career stage) - Check the alumni    
 - [Shipping container](http://www.containerartistresidency.org/#!freight-/c65q), [Arctic](http://www.thearcticcircle.org/), two places (Shanghai - NY)  
-- Libraries, Airports, Shopping malls, Hospitals 
+- [Libraries](https://medium.com/@blprnt/an-artist-in-every-library-c0df05bf3c9), [Airports](http://www.abc.net.au/news/2016-01-07/australias-first-airport-artist-in-residence-draws-airport-life/7073434), [Trains](http://blog.amtrak.com/amtrakresidency/)Shopping malls, Hospitals 
 - [Universities](http://studioforcreativeinquiry.org/public/university_artist_in_residence_report_2013.pdf)
 - Application fee, worth it?
 
@@ -45,8 +46,7 @@
 - I will fix your problems for cheaps/ I have a questions for the society and wIth my art, I address these questions. 
 - Explain your life, what happend in the last two years, why you did the things you did. What happened in the past five years. 
 - Real people are reading your application. They can relate to you.  
-- Solo project / Collaboration 
-- Credit 
+- Solo project / Collaboration / Credit 
 
 # Artist statement
 - Philosophy and motivation 
