@@ -4,9 +4,13 @@
 - MFA and the fine arts network, curator, writer, gallerist, etc  
 - Opportunity for new ideas, inspiration, collaboration
 - Support structure for your practice.  
+- When you have money, you don't have time. When you have time, you don't have money. Sometimes you don't have money or time. 
+- my [LMCC](https://www.flickr.com/photos/80913365@N04/sets/72157646634239134) studio
+- my [Eyebeam](https://www.flickr.com/search/?text=eyebeam%20taeyoon) experience
 
 #Making a living / Making good work
 - Survival tactic: Diversify your source of income 
+- Working for other artists? Access to connections? 
 - Do not over commit or over produce (residencies at the same time?) 
 - We will never have enough time or resources. Deal with it. (Think of your reality as a creative constraint, not a restriction) 
 
@@ -24,7 +28,7 @@
 
 #Domestic / International / Nomadic 
 - How to you find residencies you apply? - find your role model. 
-- Post-graduate school: Skowhegan, Akademie Solitude, Riiksakademie
+- Post-graduate school: [Skowhegan](http://www.skowheganart.org/), [Akademie Schloss Solitude](http://www.akademie-solitude.de/en), [Rijksakademie](http://www.rijksakademie.nl/ENG/), [DAAD](http://www.berliner-kuenstlerprogramm.de/en/index_en.php)
 - Europe, Asia, Australia, South America, Africa, Egypt, other places.  
 - Art + Tech residencies VS Art and Science residencies 
 - Art + Tech : Eyebeam, Pioneerworks, Harvestworks, Hangar, YCAM, Steim, Ars Electronica 
@@ -76,13 +80,15 @@
 - Interview: Great, you are one of the finalist. What to do in an interview?
 - What to do when you are in the residency - fair balance of making work and networking 
 - Thank them. After all, they work for you. 
+- [Open Studios](https://www.flickr.com/photos/80913365@N04/sets/72157651927897443)
 
-#Mak Your Own Artist residency 
+#Make Your Own Artist residency 
 - Pleaces like Eyebeam, Pioneerworks started by an artist, and most often run by artists 
 - We are doing this for our people. 
 - [Rabbit Island](http://rabbitisland.org/)
 - [Dark Matter](http://www.darkmattermanufacturing.com/) 
 - Original A.I.Rs [pics](http://www.gettyimages.com/detail/news-photo/sign-on-loft-building-signifying-legal-artists-in-residence-news-photo/583733257)
 - [Fire Island Artist Residency](http://www.fireislandartistresidency.org/)
+- [Temporary Seoul](http://taeyoonchoi.com/2010/12/seoul-residency/)
 - [Wassaic](http://wassaicartistresidency.org/) 
 - [Shendanken](http://www.shandakenproject.org/) 
