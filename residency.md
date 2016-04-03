@@ -31,13 +31,15 @@ Instructor: Taeyoon Choi is an artist and educator. He's the co-founder of Schoo
 - Working for other artists? Access to connections? 
 - Do not over commit or over produce (doing mulitple residencies at the same time is a bad idea) 
 - We will never have enough time or resources. Deal with it. (Think of your reality as a creative constraint, not a restriction) 
+- I highly recommend [B.F.A](http://lmcc.net/program/basic-finance-for-artists/)(Basic Finance for Artists) at LMCC
+- [Art/Work](http://books.simonandschuster.com/ART-WORK/Heather-Darcy-Bhandari/9781416572336) is a a great resrouce. 
 
 #Promise me this 
 
-- Create your own residency, $5000 grant for yourself. 17 months plan - save $300 every months from this month. By September 1, 2017. You will have 5000 for your creative work. Invest in your own practice and your team. 
+- Create your own residency, $5000 grant for yourself. 17 months plan - save $300 every months from this month. By September 1, 2017. You will have $5000 for your creative work. This is your seed money. Invest in your own practice and your team. 
 
 #Residency/ Fellowship/ Commission 
-- Expectations and experiences are different. Fellowship often focus on programs and professional developments, Commission focus on making one big project, often with financial support. Residency focus on supporting your practice, for you to make art. Residencies often have no or very little expectation from you, other than using their space and exhibiting work in progress during the open studios. 
+- Expectations and experiences are different. Fellowship often focus on programs and professional developments, Commission focus on making one big project, often with financial support. Residency focus on supporting your practice, for you to make art. Residencies often only expect you to use the space and exhibiting work in progress during the open studios. 
 - Institutional / Artists-run Spaces
 - Residencies that pay you 
 - Residencies that are free
