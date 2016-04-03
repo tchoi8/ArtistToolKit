@@ -1,3 +1,7 @@
+![](https://c1.staticflickr.com/9/8876/18614959841_9fa4854b62_z.jpg)
+
+*[Xuan Juliana Wang](http://www.xuanjulianawang.com/)'s studio at [LMCC](http://lmcc.net)*
+
 #Why do I need to apply for Artist residency? 
 - Time and space. Usually free space + some programs (professional development) 
 - Network and exposure (even if you don’t get it) 
@@ -82,13 +86,13 @@
 -  It gets easier. If you apply for a few times, you have a body of text and images to use.  
 - Interview: Great, you are one of the finalist. What to do in an interview? Talk about what you are working on right now. And what this opportunity will mean for you.
 - What to do when you are in the residency - fair balance of making work and networking 
-- Thank them. After all, they work for you. 
+- Thank them. After all, they work for us, the artists. 
 - If you are accepted, YEAH! Make sure to block out some time and mind space, so you can concentrate on your work during the residency. This is where your residency fund become useful. 
 - As part of your residency, you do an [Open Studios](https://www.flickr.com/photos/80913365@N04/sets/72157651927897443)
 
 #Make Your Own Artist residency 
 - Pleaces like Eyebeam, Pioneerworks started by an artist, and most of them are run by artists 
-- Always remember "We are doing this for our people." 
+- Always remember "We are doing this for our people." mentality
 - Something of a dream [Rabbit Island](http://rabbitisland.org/)
 - A residency/ collective studio I'm part of [Dark Matter](http://www.darkmattermanufacturing.com/) 
 - Original A.I.Rs [pics](http://www.gettyimages.com/detail/news-photo/sign-on-loft-building-signifying-legal-artists-in-residence-news-photo/583733257)
@@ -96,3 +100,6 @@
 - [Temporary Seoul](http://taeyoonchoi.com/2010/12/seoul-residency/)
 - [Wassaic](http://wassaicartistresidency.org/) 
 - [Shendanken](http://www.shandakenproject.org/) 
+
+#And
+Lots of love for people who work at Artist residencies. THANK YOU! 
