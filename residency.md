@@ -2,6 +2,18 @@
 
 *[Xuan Juliana Wang](http://www.xuanjulianawang.com/)'s studio at [LMCC](http://lmcc.net)*
 
+
+Artist Residency Application Workshop
+
+Saturday, April 2, 5pm - 8pm
+[NYU ITP](itp.nyu.edu/)
+
+Artist residencies are a great opportunity for emerging artists to develop their artistic practice. It's also a chance to find a community of collaborators and build a network with curators. Applying to artist residencies can be a daunting task at first. This workshop will give an overview of residencies and provide practical tips to applications. Students will write their artist statement, narrative bio and prepare their supporting documents. 
+
+Instructor: Taeyoon Choi is an artist and educator. He's the co-founder of School for Poetic Computation and a [Somethings in Residence](https://tisch.nyu.edu/itp/itp-people/faculty/somethings-in-residence-sirs/taeyoon-choi) at NYU ITP. He was an artist in residence at Eyebeam Art and Technology Center, Lower Manhattan Cultural Council, The Frank-Ratchye Studio for Creative Inquiry at Carnegie Mellon University, Art + Technology Lab, Los Angeles County Museum of Art.
+
+
+
 #Why do I need to apply for Artist residency? 
 - Time and space. Usually free space + some programs (professional development) 
 - Network and exposure (even if you don’t get it) 
